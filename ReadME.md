@@ -125,7 +125,9 @@ To take the oxidation off silver you have to use one ingredient only: bicarbonat
 
 Pour 250ml of lukewarm water and 5 spoons of bicarbonate in a container. Mixed until it is melted. Leave your silver jewels in the solution over the night, then brush them with a toothbrush until they shine again. Finally, rinse and dry with soft cloth.
 ```
-```Sustainability```
+```
+Sustainability
+```
 
 ```
 
